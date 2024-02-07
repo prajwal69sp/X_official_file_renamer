@@ -57,5 +57,5 @@ Press Below Button to Deploy!
 </p>
 
 
-<b>ᴅᴇᴠᴇʟᴏᴘᴇʀ ›› [ᴀᴀᴅʜɪ](https://telegram.dog/AboutAadhi) | [ɪɴsᴛᴀɢʀᴀᴍ](https://www.instagram.com/_aadil_m__/) | [ɢɪᴛʜᴜʙ](GitHub.com/Aadhi000)</b>                                                                                                                                                                                    
-<b>ᴄʜᴀɴɴᴇʟ ›› [ᴍᴡ ᴜᴘᴅᴀᴛᴇᴢ](https://t.me/MWUpdatez)</b>
+<b>ᴅᴇᴠᴇʟᴏᴘᴇʀ ›› [praju](https://t.me/universe_x_official) | [ɪɴsᴛᴀɢʀᴀᴍ](https://www.instagram.com/itz.prajju__?igsh=NzFjYndnd2treXVv) | [ɢɪᴛʜᴜʙ](GitHub.com/prajwal69sp)</b>                                                                                                                                                                                    
+<b>ᴄʜᴀɴɴᴇʟ ›› [ᴍᴡ ᴜᴘᴅᴀᴛᴇᴢ](https://t.me/universe_x_official)</b>
